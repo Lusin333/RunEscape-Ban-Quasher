@@ -18,3 +18,9 @@ Enjoy playing Runescape again.  And remember, you did nothing wrong.  ;)
 
 ![alt text](https://raw.githubusercontent.com/Lusin333/Ban-Quasher/master/Ban%20Quasher%20Icon%20-%20Lusin.png)
 ![alt text](https://raw.githubusercontent.com/Lusin333/Ban-Quasher/master/Ban%20Quasher%20Preview.png)
+
+## Follow Lusin
+* 🎥 [Lusin's Youtube](https://www.Youtube.com/c/Lusin333?sub_confirmation=1)
+* 🐦 [Lusin's Twitter](https://Twitter.com/Lusin333)
+* 📸 [Lusin's Instagram](https://www.instagram.com/LusinMohinder)
+* 👩‍💻 [Lusin's Github](https://Github.com/Lusin333)
